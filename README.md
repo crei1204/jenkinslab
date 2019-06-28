@@ -1,6 +1,0 @@
-# jenkinslab
-
-awegfwerg
-pojhpojpojp
-erzerz
-
